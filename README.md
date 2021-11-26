@@ -11,12 +11,4 @@ what
 
 [36](https://www.coolapk.com/apk/com.woodemi.smartnote.light)
 
-[浏览器](https://www.coolapk.com/apk/com.heytap.browser)
-
-[！](https://www.coolapk.com/apk/com.woodemi.w1Test)
-
-[5](https://www.coolapk.com/apk/com.csdroid.pkg)
-
 [And](https://www.coolapk.com/apk/com.apowersoft.mirror)
-
-[Android](https://www.coolapk.com/apk/com.ido.screen.record)
