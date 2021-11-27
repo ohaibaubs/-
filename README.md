@@ -5,7 +5,7 @@ what
 
 [酷安下载](https://www.coolapk.com/apk/com.coolapk.market)
 
-[oppo浏览器](http://m.danji100.com/app/124290.html)
+[oppo浏览器](http://www.qqtf.com/azrj/98797.html)
 
 [？](https://app.3dmgame.com/android/262290.html)
 
@@ -13,4 +13,6 @@ what
 
 [And](https://www.coolapk.com/apk/com.apowersoft.mirror)
 
-[An](https://g.pconline.com.cn/dl/2023149.html)
+[An](https://m.3h3.com/az/146111.html)
+
+[n](https://m.cr173.com/x/346024)
